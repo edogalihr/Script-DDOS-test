@@ -1,1 +1,1 @@
-Kalau Berhasil Jangan di salahgunakan, Kami tidak adakan Bertanggung Jawab Jika Bermasalah
+Kalau Berhasil Jangan di salahgunakan, Kami tidak akan Bertanggung Jawab Jika Bermasalah
